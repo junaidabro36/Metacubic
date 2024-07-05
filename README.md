@@ -1,1 +1,1 @@
-[Metacubic](https://brandligo.com)
+[Brandligo](https://brandligo.com)
